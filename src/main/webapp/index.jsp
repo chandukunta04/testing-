@@ -8,7 +8,7 @@
   
   <h3> Ofc Location : Ameerpet, Hyderbad </h3>
 
-<h4> Thank you hanuman & shree ram& kalabhirava swamy  </h4>
+<h4> Thank you hanuman & shree ram& kalabhirava swamy  & anthagiri pochamma thalli</h4>
 
 </body>
 </html>
